@@ -1,2 +1,2 @@
 # clearlove
-Challenge is all inmy life.
+Challenge is all in my life.
